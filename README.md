@@ -3,7 +3,7 @@
 - 👀 I’m interested in Ethical Hacking
 - 🌱 I’m currently learning a lot of things🥵
 - 💞️ I’m looking to collaborate on Google🤭
-- 📫 How to reach me [Telegram](https://t.me/Ka_KsHi_HaTaKe)
+- 📫 Reach me at [My Telegram](https://t.me/Ka_KsHi_HaTaKe)
 
 <!---
 WH1TE-401/WH1TE-401 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
