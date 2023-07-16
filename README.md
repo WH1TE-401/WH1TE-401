@@ -1,6 +1,10 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=WH1TE+404;CYBER+SECURITY+ENTHUSIAST;Passionate+In+WEB+DEV;Also+RESEARCHER)](https://git.io/typing-svg)
 
 
+
+https://github.com/WH1TE-401/WH1TE-401/assets/139062494/09267162-0df8-46f7-a674-1aa7d785e873
+
+
 - 👋 Hi, I’m @WH1TE-401
 - 👀 I’m interested in Ethical Hacking
 - 🌱 I’m currently learning a lot of things🥵
