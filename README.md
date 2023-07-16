@@ -2,9 +2,6 @@
 
 
 
-https://github.com/WH1TE-401/WH1TE-401/assets/139062494/09267162-0df8-46f7-a674-1aa7d785e873
-
-
 - 👋 Hi, I’m @WH1TE-401
 - 👀 I’m interested in Ethical Hacking
 - 🌱 I’m currently learning a lot of things🥵
