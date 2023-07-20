@@ -4,7 +4,7 @@
 _____________________________________
 [<img src="https://media0.giphy.com/media/C4NdKtRaQE9m8/giphy.webp?cid=6c09b9521034b8fd75dde569f985dab98b6ec6ff86be509b&ep=v1_internal_gifs_gifId&rid=giphy.webp&ct=g"/>](https://www.instagram.com/whxite.exe/)
 
-<a href="https://www.instagram.com/_vladimir_putin.___/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="la1uuuuu" height="30" width="40"/></a># Connect with me
+<a href="https://www.instagram.com/whxite.exe" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="la1uuuuu" height="30" width="40"/></a># Connect with me
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=WH1TE-401&label=Profile%20views&color=0e75b6&style=flat" alt="WH1TE-401" /> </p>
 
